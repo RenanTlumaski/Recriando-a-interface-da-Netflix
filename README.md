@@ -1,0 +1,6 @@
+# Exercício da Netflix
+
+
+
+
+
